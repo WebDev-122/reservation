@@ -1,1 +1,1 @@
-https://elated-shannon-fc1549.netlify.app
+https://605dde094a846e00074038ad--elated-shannon-fc1549.netlify.app/
